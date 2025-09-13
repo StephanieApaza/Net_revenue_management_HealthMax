@@ -1,1 +1,1 @@
-# Net_revenue_management_HealthMax
+# Net Revenue Management Market Shampoos
